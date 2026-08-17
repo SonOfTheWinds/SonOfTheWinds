@@ -1,3 +1,10 @@
+<div align="center">
+
+[LORE](https://docs.google.com/document/d/1ILHeZWUFCJuxb4XoeaqDdKB7innk4_-JjVNquU3a3Dc/edit?usp=drivesdk)
+
+
+</div>
+
 <div align="center">︵︵︵ ๑ ♡ ๑ ︵︵︵</div>
 ‎ 
 ‎ 
