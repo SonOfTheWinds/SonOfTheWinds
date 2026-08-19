@@ -5,7 +5,7 @@
 
 </div>
 
-<div align="center">︵︵︵ ๑ ♡ ๑ ︵︵︵</div>
+<div align="center"> ๑ ♡ ๑ </div>
 ‎ 
 ‎ 
 ‎ 
