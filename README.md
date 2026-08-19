@@ -19,7 +19,7 @@
 
 <div align="center">
 
-![Pony Town](https://i.postimg.cc/6QVqpG9S/pony-town-father-of-the-year-stand-4x.png)
+![Pony Town]()
 
 
 </div>
