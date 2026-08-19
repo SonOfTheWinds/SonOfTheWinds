@@ -12,7 +12,7 @@
 
 <div align="center">
 
-![Pony Town](https://i.postimg.cc/XNsWLkHH/pony-town-Left-me-for-dead-stand-4x-(2).png)
+![Pony Town](https://i.postimg.cc/Gmv8Hm2S/pony-town-Prince-of-Freedom-stand-4x.png)
 
 
 </div>
